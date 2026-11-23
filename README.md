@@ -44,3 +44,9 @@ Sometimes I am quite weird when I'm comfortable with you. Platonical flirting mi
 ---
 
 # 𝗔𝗚𝗔𝗜𝗡 𝗜𝗡 𝗛𝗨𝗚𝗘 𝗧𝗘𝗫𝗧,, 𝗗𝗡𝗜 𝗗𝗡𝗜 𝗗𝗡𝗜 𝗥𝗜𝗖𝗞𝗢𝗥𝗧𝗬 𝗣𝗟𝗘𝗔𝗦𝗘 !
+
+<img width="735" height="473" alt="prime rick art-Photoroom" src="https://github.com/user-attachments/assets/3eb01e77-8c77-4728-a8a8-38f53c763422" />
+
+---
+
+# 𝗧𝗛𝗘 𝗘𝗡𝗗 𝗕𝗔𝗟𝗔𝗟𝗔𝗟𝗔.
